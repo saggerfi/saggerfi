@@ -1,7 +1,7 @@
 # Gerardo Cedillo - @saggerfi
 
 #### About
-##### Industrial Engineer and Programmer 💻
+##### INDUSTRIAL ENGINEER AND PROGRAMMER 💻
 Experience in quality process and process mapping. Cheerful, proactive and very good working and collaborating with people. Industrial engineering student, interested in the technology and design, fan of Japanese animation and video games.
 
 ##### EXPERIENCE 🏚️
